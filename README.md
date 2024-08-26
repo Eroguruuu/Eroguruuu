@@ -1,7 +1,7 @@
  	\m/ Hi heya cumichiwa... \m/
         \m/ I can be your little slut you will never get enough. \m/ 
   	\m/ I`m	Elfscyne, 19 years male. \m/
-        \m/ I'm schizophrenic I hear strange sounds (voices, e.t.c) and strange thoughts whenever I got an cool idea, like taste of apple juice or something. \m/
+        \m/ I'm schizophrenic I hear strange sounds (voices, e.t.c) and strange thoughts whenever I got an cool idea, like taste of apple juice or something. And shadows \m/
 	\m/ MEDICATE ME AND SEDATE ME CHAIN ME TO BED \m/
 	\m/ I love to talk with myself since I will never have any frineds rofl. \m/
 	\m/ I had panic attacks, crippling depression.\m/
